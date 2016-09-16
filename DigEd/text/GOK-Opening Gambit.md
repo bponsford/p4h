@@ -38,6 +38,7 @@ Once there, it was simple. In a small room in the High Street he changed fast in
 
 They told him, and received their orders, and then he left, pausing on the threshold to pin the dark cloak about his chin. “Shy,” said Lymond with simplicity, “as a dogtooth violet.” And he was gone.
 
+&nbsp;
 
 In his tall house in Gosford Close with the boar’s head in chief over the lintel, Mungo Tennant, wealthy and respectable burgher, had invited a neighbour and his friend to call. They sat on carved chairs, with their feet on a Kurdistan carpet, ate their way through capon and quails, chickens, pigeons and strawberries, cherries, apples and warden pears, and noticed none of these things, nor even the hour, being at grips with a noble and irresistible argument.
 
@@ -93,7 +94,7 @@ It was only a sneeze; but a sneeze outside the door of their chamber, which disl
 
 His hair soft as a nestling’s, his eyes graceless with malice, Lymond was watching him in a silver mirror. Before Erskine could call, Buccleuch and Mungo Tennant had piled in beside him and Lymond had taken two steps to the far door, there to linger, hand on latch and the blade of his sword held twinkling at breast level as they jumped, weaponless, to face him, and then fell back.
 
-“As my lady of Suffolk saith,” said Lymond gently, “God is a marvellous man.” Eyes of cornflower blue rested thoughtfully on Sir Wat. “I had fallen behind with the gossip.… Nouvelle amour, nouvelle affection; nouvelles fleurs parmi l’herbe nouvelle. Tell Richard his bride has yet to meet her brother-in-law, her Sea-Catte, her Sea-Scorpion, beautiful in the breeding season. What a pity you didn’t wear your swords.”
+“As my lady of Suffolk saith,” said Lymond gently, “God is a marvellous man.” Eyes of cornflower blue rested thoughtfully on Sir Wat. “I had fallen behind with the gossip.… _Nouvelle amour, nouvelle affection; nouvelles fleurs parmi l’herbe nouvelle_. Tell Richard his bride has yet to meet her brother-in-law, her Sea-Catte, her Sea-Scorpion, beautiful in the breeding season. What a pity you didn’t wear your swords.”
 
 Rage mottled Buccleuch’s face. “Ye murdering cur.… You’ll end this night—”
 
@@ -103,7 +104,7 @@ Rage mottled Buccleuch’s face. “Ye murdering cur.… You’ll end this night
 
 “Mungo doesn’t think so,” said Lymond. “His mind is on fleshly lusts and his treasure.” And certainly, the jennet fur at his neck warped with sweat, Mungo Tennant was gaping at the intruder.
 
-Lymond smiled back. “Be careful,” he said. “Pits are yawning publicly at your feet. O mea celia, vale, you know …” And suddenly, it came to Mungo what he was threatening.
+Lymond smiled back. “Be careful,” he said. “Pits are yawning publicly at your feet. _O mea celia_, vale, you know …” And suddenly, it came to Mungo what he was threatening.
 
 “Don’t linger, I pray you, cuckoo, while you run away,” said the sage. Mungo Tennant said nothing. He rushed toward Lymond, collided with Tom Erskine on the way, and falling, sat on the candle. There was a moment’s indescribable hubbub while the three men and the firedog blundered cursing into each other in the dark; then they got to the far door and wrenched it open. The corridor as far as the stairhead was quite empty, and the light feet running downward were already some distance away. They hurled themselves after him.
 
@@ -127,31 +128,17 @@ Mungo need not have worried. The lower cellar, the cavern and the long undergrou
 
 Late, the laminated sheet of the Nor’ Loch held a faint chord of laughter.
 
-“There was a lady lov’d a hogge
-
-Honey, quoth she
-
-Won’t thou lie with me tonight?
-
+“There was a lady lov’d a hogge  
+Honey, quoth she  
+Won’t thou lie with me tonight?  
 Hoogh, quoth he.”
-
-
-
-
 
 And, long since ashore with his men and his booty, Crawford of Lymond, man of wit and crooked felicities, bred to luxury and heir to a fortune, rode off serenely to Midculter to break into his new sister-in-law’s castle.
 
-“Won’t thou lie with me tonight?
-
+“Won’t thou lie with me tonight?  
 Hoogh, quoth he.”
 
-
-
-
-
-* * *
-
-
+ * * *
 
 In the Castle of Midculter, close to the River Clyde in the southwest lowlands of Scotland, the Dowager Lady Culter had reared three children of whom the youngest, Eloise, died at school in her teens. The two boys remaining were brought up variously in France and in Scotland: she had them taught Latin, French, philosophy and rhetoric, hunting, hawking, riding and archery, and the art of killing neatly with the sword. When her husband died, violently, in the field the elder boy Richard became third Baron Culter, and Francis his brother received the heir’s title of Master of Culter as well as taking name from his own lands of Lymond.
 
@@ -195,6 +182,7 @@ With difficulty, Janet transfixed the wandering blue eye. “Sybilla. What about
 
 And this time, Lady Buccleuch took the hint.
 
+&nbsp;
 
 Mariotta was returning from her errand by the wheel stair when she heard the horses in the courtyard and guessed that Richard and his train were coming in. The requirements of dignity fought with a wifely desire to scamper below. She was hesitating still when footsteps turned the stair corner below and an alien and unknown yellow head rose from the serpentine depths, a nautilus from the shell.
 
@@ -244,9 +232,7 @@ Mariotta, collecting her wits, produced the only deterrent she could think of. �
 
 He received this with tranquil pleasure. “Then one person at least should recognize me,” Crawford of Lymond said, and pushed the door gently open for her to walk through.
 
-* * *
-
-
+ *  *  *
 
 Meanwhile Sir Wat Scott of Buccleuch was riding westward from Edinburgh, free at last of the Governor’s councils, and leaving behind him his good friend Tom Erskine, a distraught smuggler, and a depressed pig.
 
@@ -300,9 +286,7 @@ The wind patted their faces, and turned. A great column, black as the onset of n
 
 With an undreamed-of turn of speed Lord Culter reached the stairs with Buccleuch after him, yelling bills and bows for the castle to hear. Left alone, Christian Stewart herself found the stairs and descended, with debate in the unseeing eyes.
 
-* * *
-
-
+ * * *
 
 When the door opened, the women in the Hall at Midculter were not surprised. They expected to be fed; and Lady Buccleuch, for whom pregnancy spelled food, had already taken strategic foothold by the windows, where the cold dishes were ready laid. Sybilla, standing by the hearth, was in the middle of a long, grave story provoking much mirth. As the door opened she said happily, “Now we can eat. Janet will be so pleased.” The blue eyes smiled at her daughter-in-law, ceased to smile, and then simply rested, thought suspended, on the still-open door.
 
@@ -326,11 +310,11 @@ He turned on her the vague survey. “Oak of linen and pole of jewels, I’ve de
 
 An approaching voice, of the self-same timbre, answered him. “Farce, then,” said the Dowager composedly. “My son is not very complicated, Mariotta, although the artifice glitters. He’s afraid—”
 
-“Afraid!” Blue eyes, dead of feeling, looked into blue. “Afraid of what? Damned by the church and condemned by the law: what possible capacity for fear can heart and head still find? Oimè el cor, oimè la testa … After five years of villainy, I promise you, I have the refinement of a cow-cabbage.”
+“Afraid!” Blue eyes, dead of feeling, looked into blue. “Afraid of what? Damned by the church and condemned by the law: what possible capacity for fear can heart and head still find? _Oimè el cor, oimè la testa_ … After five years of villainy, I promise you, I have the refinement of a cow-cabbage.”
 
 “—Afraid I might puncture the cocoon of Attic detachment. What we see is acting, isn’t it, Francis?”
 
-“Is it?” he said derisively. “You won’t get your diamonds back, I fear, when the curtain comes down. And the name, please, is Lymond: a new medal: choose the trussell or the pile. My present face is the provident, forbearing one.” The smiling eyes turned on her were empty. “De los álamos vengo, madre. From the stews and alleyways of Europe with a taste for play acting—yes—and killing and treason and crimes, they say, nameless and enticingly erotic. Haven’t I been worth five years’ excellent gossip to you? Are you not all waiting agog to see me seize my sister-in-law by the hair? When I think of it, damn it, I’m a public benefactor.”
+“Is it?” he said derisively. “You won’t get your diamonds back, I fear, when the curtain comes down. And the name, please, is Lymond: a new medal: choose the trussell or the pile. My present face is the provident, forbearing one.” The smiling eyes turned on her were empty. “_De los álamos vengo, madre_. From the stews and alleyways of Europe with a taste for play acting—yes—and killing and treason and crimes, they say, nameless and enticingly erotic. Haven’t I been worth five years’ excellent gossip to you? Are you not all waiting agog to see me seize my sister-in-law by the hair? When I think of it, damn it, I’m a public benefactor.”
 
 “Chattering ape!” Lady Buccleuch took a hand in the game, full of rage and pity for Sybilla and hatred for the black-bearded ruffian who had just seized her emeralds. “What’s poor Richard ever done to you except get himself born first?”
 
@@ -342,11 +326,11 @@ But not fast enough. Lymond, watching from the door, had no mind to lose one of 
 
 In the silence of the room Janet screamed, once; and her right arm dropped to her side, the knife slipping from big, relaxed fingers. Then slowly and disjointedly, Buccleuch’s wife fell, and Lymond’s dagger, thrown with accuracy across the width of the room, glittered in her gown, stained and sticky with blood.
 
-“Afraid?” said the yellow-haired man and laughed. “Forgive me, I should have warned you: I have a tendency to be bloody-minded. Bruslez, noyez, pendez, ompallez, descouppez, fricassez, crucifiez, bouillez, carbonnadez ces méchantes femmes. Matthew! When you have digested your windfall will you kindly report progress below? Now”—as Blackbeard, red with shame, disappeared through the screen door—“come along, ladies. Leave your female Telemachus alone for a moment; she’s not dead.”
+“Afraid?” said the yellow-haired man and laughed. “Forgive me, I should have warned you: I have a tendency to be bloody-minded. _Bruslez, noyez, pendez, ompallez, descouppez, fricassez, crucifiez, bouillez, carbonnadez ces méchantes femmes_. Matthew! When you have digested your windfall will you kindly report progress below? Now”—as Blackbeard, red with shame, disappeared through the screen door—“come along, ladies. Leave your female Telemachus alone for a moment; she’s not dead.”
 
 He surveyed them pleasantly. “Epilogue,” he said. “We have heard sweet-voiced Calliope busily shrinking me like a sea worm and calling me play actor. And the lady of Buccleuch taking heart there-from to give us a roaring, a howling, a whistling, a mummying and a juggling, with sorry results. And Mariotta, trying to wring shame from the unshamable.”
 
-He turned his head, and the girl’s heart jumped. “Qu’es casado, el Rey Ricardo. Weel, weel, sister, what shall we do with you, Mariotta?” He watched her thoughtfully, and then looked beyond her and smiled. “Observe,” he said. “Their eyes lit like corpse candles. I beg, under the circumstances, to be original.… Yes?”
+He turned his head, and the girl’s heart jumped. “_Qu’es casado, el Rey Ricardo_. Weel, weel, sister, what shall we do with you, Mariotta?” He watched her thoughtfully, and then looked beyond her and smiled. “Observe,” he said. “Their eyes lit like corpse candles. I beg, under the circumstances, to be original.… Yes?”
 
 Blackbeard had reappeared. “All finished, sir; and the horses are ready.”
 
@@ -359,8 +343,6 @@ He scanned them all, and they gave him back contempt for reflective stare. “I 
 The door shut behind them all, and locked. The women stared at it, mesmerized, and observed across it the wavering shadow of an uncanny cloud. Behind the chamfered windows the sun was obscured by drifting wreaths of grey smoke, and the silence filled with the crackling of flames. The youngest surviving Crawford, in leaving, had deftly set fire to the castle.
 
 * * *
-
-
 
 The bonfires stacked against its walls were blazing merrily when the party from Boghall shot down the incline toward the castle. Behind Richard came every able-bodied man from Lord Fleming’s garrison. They tore away the faggots and, using hatchets, broke through the main door and again through the door of the Hall.
 
@@ -384,9 +366,8 @@ Without looking at Mariotta, Richard answered for him. “We heard at Boghall. I
 
 “… So Lymond—dear God, Lymond must wait.”
 
+
 * * *
-
-
 
 Only eight months had gone since Henry VIII of England had been suspended in death, there to lie like Mohammed’s coffin, hardly in the Church nor out of it, attended by his martyrs and the acidulous fivefold ghosts of his wives. King Francis of France, stranded by his neighbour’s death in the midst of a policy so advanced, so brilliant and so intricate that it should at last batter England to the ground, and be damned to the best legs in Europe—Francis, bereft of these sweet pleasures, dwindled and died likewise.
 
