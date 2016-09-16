@@ -2,26 +2,13 @@
 
 ### Threat to a Castle
 
-
-
-
-First of ye chekker sall be mēcioune maid
-
-And syne efter of ye proper moving
-
-Of every man in ordour to his king
-
-And as the chekker schawis us yis forne
-
-Richt so it maye the kinrik and the crowne,
-
-The warld and all that is therein suthlye,
-
+First of ye chekker sall be mēcioune maid  
+And syne efter of ye proper moving  
+Of every man in ordour to his king  
+And as the chekker schawis us yis forne  
+Richt so it maye the kinrik and the crowne,  
+The warld and all that is therein suthlye,  
 The chekker may in figour signifye.
-
-
-
-
 
 “LYMOND is back.”
 
@@ -33,7 +20,7 @@ It was said by busy men preparing for war against England, with contempt, with d
 
 Lymond’s own men had known he was coming. Waiting for him in Edinburgh they wondered briefly, without concern, how he proposed to penetrate a walled city to reach them.
 
-When the Sea-Catte came in, Mungo Tennant, citizen and smuggler of Edinburgh, knew nothing of these things or of its passenger. He made his regular private adjustment from douce gentility to illegal trading; and soon a boatload of taxless weapons, bales of velvet and Bordeaux wine was being rowed on a warm August night over the Nor’ Loch which guarded the north flank of Edinburgh, and toward the double cellar beneath Mungo’s house.
+When the _Sea-Catte_ came in, Mungo Tennant, citizen and smuggler of Edinburgh, knew nothing of these things or of its passenger. He made his regular private adjustment from douce gentility to illegal trading; and soon a boatload of taxless weapons, bales of velvet and Bordeaux wine was being rowed on a warm August night over the Nor’ Loch which guarded the north flank of Edinburgh, and toward the double cellar beneath Mungo’s house.
 
 Among the reeds of the Nor’ Loch, where the snipe and the woodcock lay close and the baillies’ swans raised their grey necks, a man quietly stripped to silk shirt and hose and stood listening, before sliding softly into the water.
 
